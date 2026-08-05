@@ -1,6 +1,9 @@
 # Zion-Beason
 I am a high school drug-design scientist and researcher in the Houston area and am the president of Iowa Colony High School's HOSA club for the current 2026 to 2027 school year.
 
+ORCID ID: https://orcid.org/0009-0004-9072-7015
+LinkedIn: www.linkedin.com/in/zion-beason-921947283
+
 I have completed the following relevant courses: Medical Microbiology; Anatomy and Physiology; Health Science Theory; Medical Terminology; Principles of Health Science; Pharmaceutical Mathematics I (PHRA-1301); Drug Classification (PHRA-1305); Introduction to Pharmacy (PHRA-1309); Pharmacy Terminology (PHRA-1315); Pharmaceutical Mathematics II (PHRA-1347); Pharmacy Drug Therapy and Treatment & Lab (PHRA-1441)
 
 I have done the following activities:
