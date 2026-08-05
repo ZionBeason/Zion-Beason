@@ -1,4 +1,4 @@
-# Zion-Beason
+# Zion Beason
 I am a high school drug-design scientist and researcher in the Houston area and am the president of Iowa Colony High School's HOSA club for the current 2026 to 2027 school year.
 
 ORCID ID: https://orcid.org/0009-0004-9072-7015
